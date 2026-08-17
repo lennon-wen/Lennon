@@ -1,2 +1,0 @@
-# Lennon
-atividade
